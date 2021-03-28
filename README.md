@@ -6,5 +6,5 @@
 *   :soccer: sports and electronic music lover
 
 
-       ![gato](https://user-images.githubusercontent.com/78756751/112763331-68deb380-8fda-11eb-8f28-78a66ae22c1c.gif)
+     
 
